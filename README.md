@@ -72,4 +72,11 @@ connect with me on [my Github]https://github.com/joalbeva
 ## Credits
 [Jorge Bernal](https://github.com/joalbeva)
 
+##test video
+
+https://drive.google.com/file/d/1K0ZL9ryYCFyopMYXJ12WZfBbV7wpY_ma/view
+
+##walkthrough video
+
+https://drive.google.com/file/d/1K0ZL9ryYCFyopMYXJ12WZfBbV7wpY_ma/view
 
