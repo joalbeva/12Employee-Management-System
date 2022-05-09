@@ -78,5 +78,5 @@ https://drive.google.com/file/d/1K0ZL9ryYCFyopMYXJ12WZfBbV7wpY_ma/view
 
 ##walkthrough video
 
-https://drive.google.com/file/d/1K0ZL9ryYCFyopMYXJ12WZfBbV7wpY_ma/view
+https://drive.google.com/file/d/1zgLr9A8BKeaIYB1GpPecyvrlJXI3Mazp/view
 
